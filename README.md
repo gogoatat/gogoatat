@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gogoatat
-- 👀 I’m interested in MrMangoHands'mods of sodium
+- 👀 I’m interested in no
 - 🌱 I’m currently learning school
-- 💞️ I’m looking to collaborate on mc speedrunning
+- 💞️ I’m looking to collaborate on yes
 - 📫 How to reach me - dont
 
 <!---
